@@ -1,2 +1,0 @@
-# What-is-a-holographic-chain-
-The holographic chain is the world's leading holographic image ecosystem designed to create a decentralized image for business users. It allows all users to easily and freely share images. The data platform of the holographic chain is based on intelligent acquisition devices and applications that have been put into use. All users can easily and freely share images through production. Each picture is like a mine, giving users a return on their income.
